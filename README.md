@@ -1,1 +1,1 @@
-Data Visualixation: Empowering Business with effective insights
+Data Visualization: Empowering Business with effective insights
